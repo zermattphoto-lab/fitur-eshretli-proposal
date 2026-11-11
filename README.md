@@ -1,1 +1,0 @@
-# fitur-eshretli-proposal
